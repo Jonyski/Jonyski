@@ -1,7 +1,7 @@
 - 👋 Helloo, I’m Jonyski
 - 👀 I’m interested in web and game development
 - 🌱 I’m currently learning Rust and JavaScript
-- 💩 Looking for a open source project to contribute to and learn something
+- 💩 Looking for an open source project to contribute to and learn something from
 - 👌 I swear i comment code
 - 📫 You can reach me on discord Jonyski#2950
 
