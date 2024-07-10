@@ -6,5 +6,4 @@
 - 💩 I swear i comment code (at least in my more recent repos)
 - 📫 You can reach me on discord Jonyski#2950
 
-ducks are the best animal.
-![duck](https://giphy.com/embed/jt34LHEVIsbs0Qlbi2)
+![byeee](https://i0.wp.com/aiptcomics.com/wp-content/uploads/2016/03/goodnight-punpun-featured.png?fit=907%2C410&ssl=1)
